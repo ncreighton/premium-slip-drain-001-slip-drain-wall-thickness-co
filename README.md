@@ -1,0 +1,2 @@
+# premium-slip-drain-001-slip-drain-wall-thickness-co
+You're losing clay to unexpected collapses, and your drain wall thickness is all guesswork—costing you time, materials, and consistency. The Slip Drain &amp; Wall Thickness Control Craft Lab ends that chaos with a data-driven system built inside Notion.  This isn't just a template—it's your ceramic lab partner. Track slip density, monitor drain wall th
